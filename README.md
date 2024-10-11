@@ -1,1 +1,2 @@
-# l-petr-leo-como-v-ctima-de-tensiones-globales
+# el-petroleo-como-victima-de-tensiones-globales
+Las tensiones geopolíticas en el Medio Oriente y otras regiones han afectado drásticamente los precios del petróleo. Con eventos como la invasión rusa a Ucrania y los conflictos en el Líbano, el precio por barril ha fluctuado considerablemente. Estas situaciones generan incertidumbre tanto en la producción como en la disponibilidad de combustible, influyendo en la economía global. La volatilidad en el mercado del petróleo sigue siendo un reflejo de los intereses políticos y las estrategias de las potencias productoras.
